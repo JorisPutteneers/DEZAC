@@ -1,1 +1,1 @@
-courses and additional information about the dezac workshop
+courses and additional information about the dezact workshop
